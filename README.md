@@ -1,0 +1,1 @@
+# The-Mimimizer-Privacy-Policy
